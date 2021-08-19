@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @wutdidusay
+- 👋 Hi, I’m wutdidusay
